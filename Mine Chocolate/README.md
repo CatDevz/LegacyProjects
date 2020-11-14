@@ -4,4 +4,7 @@
 
 Welcome To The Mine Chocolate Mod!!! This mod will almost only add a lot of chocolate to your game! right now we only have the Chocolate Pice, Chocolate Bar, Chocolate Wraper, And A Lot More!!!
 
+---
+
+* Dec 9, 2015
 
